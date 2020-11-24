@@ -1,0 +1,1 @@
+Delicately Crisp Fried Wrap With Rare Savoury Filling most commonly know as "Samosa" is a widely preferred snack all over India. It is usually served with Organic Tamarind Sauce popularly know as "Chutney".

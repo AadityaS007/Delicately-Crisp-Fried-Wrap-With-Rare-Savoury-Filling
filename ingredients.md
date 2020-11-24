@@ -1,0 +1,1 @@
+Maida(All Purpose Flour), Potato, Peas, Onion, Spices, Green chili, Cheese
